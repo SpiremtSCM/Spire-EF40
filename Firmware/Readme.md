@@ -1,0 +1,1 @@
+2022.04.25 -- Latest Firmware SpireMT_EF40-V22.04.25-04252022
